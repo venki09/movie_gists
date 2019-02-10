@@ -52,3 +52,10 @@
 * Security council director calls steve and asks him why Nick was there at his place and warns steve that he'd do anything to findout who killed Nick.
 * Turns out, Fury hired the pirates to get in because he knew that SHIELD is being compromised.
 * Pierce, the director of security council is an ally with a Bald doctor who was also one of the hostages in the lemuric star ship.
+* Steve and natasha identify the source of that pen drive and then they go to the place where steve trained first when he joined thr army back in 1944.
+* he finds an office behind the building and when they go in, they find that its where SHIELD started.
+* They turn on an old computer machine and put in the pen drive and Zola, the german scientist who was with Johan Schmidtt (The red skull) appears as a voice. His brain has been stored on that computer.
+* He goes on to explain that HYDRA (The army that peeled out of Nazi during the first part) secretly injected themselves inside SHIELD and have been slowly taking over the entire world. Kinda like a bad-man version of illuminati.
+* Pierce, Wilson stifler (Bald guy) and even the washington DC senator are also part of this HYDRA. 
+* Project insight is something that they are building to takeover the world once it is done. I guess Nick found out about it and that is why he was hiring pirates to get the classified information. The information in that pen-drive is some sort of algorithm that Zola developed. 
+* Pierce is hiring the strong metal-armed man called the "Winter soldier" to assassinate Natasha and Steve
