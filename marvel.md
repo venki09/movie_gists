@@ -58,4 +58,12 @@
 * He goes on to explain that HYDRA (The army that peeled out of Nazi during the first part) secretly injected themselves inside SHIELD and have been slowly taking over the entire world. Kinda like a bad-man version of illuminati.
 * Pierce, Wilson stifler (Bald guy) and even the washington DC senator are also part of this HYDRA. 
 * Project insight is something that they are building to takeover the world once it is done. I guess Nick found out about it and that is why he was hiring pirates to get the classified information. The information in that pen-drive is some sort of algorithm that Zola developed. 
-* Pierce is hiring the strong metal-armed man called the "Winter soldier" to assassinate Natasha and Steve
+* Pierce is hiring the strong metal-armed man called the "Winter soldier" to assassinate Natasha and Steve.
+* Winter soldier is actually bucky barnes, Steve's old friend who falls down the train. Zola conducts experiment on thim and used him as an assassin for HYDRA.
+* The algorithm that zola developed reads every human's activities and identifies if they are anti-hydra. If they are, the projecy insight is supposed to kill them
+* Nick is found alive by natasha and steve. Bill (The girl in how I met your mother) rescues natasha and steve and brings them to Nick.
+* Falcon (wilson) also comes to help them.
+* In the end, they successfully install the chip on each of those 3 helicarriers and destroy them.
+* Steve tells Bucky that he knows him and he is now going in search of him
+* Nick destroys SHIELD altogether and is gone to europe.
+* In the post credits scene, Bucky visits the smithsonian museum and finds that he was alive during WW-II
