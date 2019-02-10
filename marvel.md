@@ -50,3 +50,5 @@
 * Nick then escapes and comes to Steve's house and gives him the pendrive and tells him Not to trust anyone.
 * Nick is sniped and he dies
 * Security council director calls steve and asks him why Nick was there at his place and warns steve that he'd do anything to findout who killed Nick.
+* Turns out, Fury hired the pirates to get in because he knew that SHIELD is being compromised.
+* Pierce, the director of security council is an ally with a Bald doctor who was also one of the hostages in the lemuric star ship.
