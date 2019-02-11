@@ -87,3 +87,9 @@
 * But he couldn't uproot it from the ground. Odin has put a spell on it
 * SHIELD comes to know about this research and the hammer and takes all the research material of jane away.
 * Jane tries to help thor get the hammer.
+* SHIELD take thor in custody.
+* Loki comes to meet thor and lies to him that odin is dead and that his mom never wants thor to return to asgard.
+* Erik makes up some lies and takes thor back with him.
+* Thor explains everything about the 9 realms to jane.
+* Loki makes a plan with laufey and tells him that he ll let them in so that they can kill odin and take the teseract back.
+* Thor's friends use heimdall's help to go to earth so that they can bring him back.
