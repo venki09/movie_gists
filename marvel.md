@@ -26,6 +26,7 @@
 * He was hired by another weapons dealer to build new drones. But he builds something for himself
 * Pepper and Tony get on a relationship
 * Rhody takes Tony's suit and uses it to show it to the army. But he later realizes that it was going to be used by Hammer (The other weapon's dealer)
+* In the post credit scene - TOny considers joining the avengers but they deny it by saying that he still needs time.
 
 ## Ironman3
 
@@ -93,3 +94,9 @@
 * Thor explains everything about the 9 realms to jane.
 * Loki makes a plan with laufey and tells him that he ll let them in so that they can kill odin and take the teseract back.
 * Thor's friends use heimdall's help to go to earth so that they can bring him back.
+* Loki sends the destroyer to kill THor. Thor almost dies but his hammer comes back
+* Loki lets laufey in and when heis about to kill odin, loki kills odin.
+* Loki tries to use the biofrost (The connector to other realm) to destroy jotenheim so that odin will realize loki's worth and make him the king
+* Thor breaks the bridge and removes all passage from asgard to other realm. Loki falls off and goes into a dark world
+* Post creds - Nick comes and shows teseract to Erik.
+* Loki mind controls him and says he can tamper with it and control its power.
