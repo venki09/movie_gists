@@ -68,3 +68,22 @@
 * Steve tells Bucky that he knows him and he is now going in search of him
 * Nick destroys SHIELD altogether and is gone to europe.
 * In the post credits scene, Bucky visits the smithsonian museum and finds that he was alive during WW-II
+
+## THOR
+* Asgard is one of the 9 realms called the realm of eternity.
+* King of asgard named Odin has 2 sons (Thor and Loki).
+* Odin once invaded the jotenhiem and took the relic from there (teseract)
+* King of Jotenhiem, Laufey had a son who was in the temple. That is actually loki.
+* While Odin was about to make Thor the king of asgard, 3 frost giants (Jotens) come to steal the relic. But a monster robot named destroyer burns them. Its primary job is to protect the relic.
+* Thor then gets angry and sets out to go and destroy jotenheim with 4 of his friends including Loki. 
+* They meet heimdall who is the gatekeeper of asgard.
+* When they reach jotenheim, they were greeted by a fierce army of jotens. 
+* Laufey tells thor that asgard is full of traitors
+* They then fight the army and then Odin comes and takes these 5 away
+* Odin angry on thor for invading jotenheim and breaking peace and sends him as a mortal to earth.
+* Jane and Erik are Astrophysicists who are researching a discturbance on earth.
+* They meet thor. 
+* THor comes to know about the hammer and goes to take it.
+* But he couldn't uproot it from the ground. Odin has put a spell on it
+* SHIELD comes to know about this research and the hammer and takes all the research material of jane away.
+* Jane tries to help thor get the hammer.
