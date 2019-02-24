@@ -100,3 +100,6 @@
 * Thor breaks the bridge and removes all passage from asgard to other realm. Loki falls off and goes into a dark world
 * Post creds - Nick comes and shows teseract to Erik.
 * Loki mind controls him and says he can tamper with it and control its power.
+
+## THOR - THE DARK WORLD
+* 
