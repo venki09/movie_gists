@@ -102,4 +102,7 @@
 * Loki mind controls him and says he can tamper with it and control its power.
 
 ## THOR - THE DARK WORLD
-* 
+* Dark People called the Elves led my the king Malekith possessed a powerful object called Aether.
+* Asgard attacked the elves army and took the aether away. King Bor, father of odin was the leader of asgard at that time.
+* He commands that the aether be burried so that no one could find it.
+* Malekith and his friend fled away leaving his troops behind to die. 
