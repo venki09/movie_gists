@@ -106,3 +106,13 @@
 * Asgard attacked the elves army and took the aether away. King Bor, father of odin was the leader of asgard at that time.
 * He commands that the aether be burried so that no one could find it.
 * Malekith and his friend fled away leaving his troops behind to die. 
+* Loki gets taken on custody by Asgard and put in a dungeon for what he did in the Avengers.
+* Thor travels to all realms to restore peace. He foughts in Vanaheim, the home of the Asian guy Hogan.
+* He comesback to asgard and gets ready to be the king but he missed Jane Foster.
+* In London, Jane and her friend find a place where gravity was behaving weird. 
+* Jane goes to check it out anf she gets absorbed by the dark world where aether goes into her.
+* This awakens Malekith and his army that survived.
+* Heimdall is not able to see her whan that happened. So thor goes to see Jane
+* Jane's friend called the cops since Jane went missing for 5 hours.
+* Cops tell Jane to come with them but as soon as they touch her, they get thrown away because of Aether's powers.
+* Thor takes Jane to asgard.
