@@ -130,3 +130,14 @@
 * Loki helps him because he needs vengeance for murdering his mom.
 * Erik is freed from the jail and he sees the convergence happening along with Jane's friend and the Intern, Ian.
 * Loki, Thor and Jabe enter the dark world. Malekith feels the Aether's presence.
+* Loki and Thor have a fake fight infront of Malekith in which Loki cuts off Thor's hand.
+* Malekith then gets the Aether away from jane. Thor tried to destroy it with his hammer but nothing happens. 
+* Malekith leaves with on his shuttle while Algrim fights Thor.
+* Loki sacrifices his life to save Thor. Algrim is killed.
+* Loki however doesn't die. Which Thor doesn't know.
+* Thor and jane go to earth Greenwich where the convergence will happen.
+* They stop Malekith with Erik's help.
+* Thor goes back to Asgard and tells that He doesn't need to be the king. 
+* Odin is proud of Thor.
+* The person on the throne was actually Loki and not Odin. (We don't know how that happened)
+* Post Credits - Thor comes back for Jane
