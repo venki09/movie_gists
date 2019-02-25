@@ -116,3 +116,13 @@
 * Jane's friend called the cops since Jane went missing for 5 hours.
 * Cops tell Jane to come with them but as soon as they touch her, they get thrown away because of Aether's powers.
 * Thor takes Jane to asgard.
+* Odin finds Aether inside Jane's body. He used to believe that the aether was destroyed according the book he had read.
+* Thor explains to Jane why she got caught inside that Dark world.
+* Once in 5000 years, all the 9 realms will co-inside which is called convergence. Its slowly getting there now. Jane was caught in one of the convergence point.
+* Malekith send Algrim by killing him and putting an object inside him which makes him very strong.
+* Algrim comes into Adgard as prisioner and releases all prisoners in the dungeon except Loki. Loki tells Alrgim where to go to get Jane.
+* Rest of elves come and attack Asgard. Heimdall tries to block them but he couldn't because of sheer number of people.
+* Malekith and Frigga (Odin's wife) fight and malekith kills Frigga with the help of Alrgim. Frigga saves Jane with the disappearing power.
+* Erik, the scientist is teaching a bunch of old people about the convergence as well. Stan Lee is seen.
+
+* 
