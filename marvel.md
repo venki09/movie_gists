@@ -124,5 +124,9 @@
 * Rest of elves come and attack Asgard. Heimdall tries to block them but he couldn't because of sheer number of people.
 * Malekith and Frigga (Odin's wife) fight and malekith kills Frigga with the help of Alrgim. Frigga saves Jane with the disappearing power.
 * Erik, the scientist is teaching a bunch of old people about the convergence as well. Stan Lee is seen.
-
-* 
+* Thor plans to escape asgard and go to the dark world with Jane so that he can have Malekith pull out the aether and then kill him along with the aether.
+* Odin disapproves of this and sends the whole asgard army after Thor and his friends.
+* Thor seeks Loki's help to show him the secret passage to the dark world.
+* Loki helps him because he needs vengeance for murdering his mom.
+* Erik is freed from the jail and he sees the convergence happening along with Jane's friend and the Intern, Ian.
+* Loki, Thor and Jabe enter the dark world. Malekith feels the Aether's presence.
