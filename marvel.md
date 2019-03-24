@@ -177,3 +177,9 @@
 * GoGs are saved by a strange space ship which destroys all of sovereigns' ships in one shot. 
 * GoGs crash land in a planet named behert where the strange spaceship comes as well.
 * The man's name is ego and he is pete's dad.
+* He shows around his planet and explains that he is a celestial being. Who built everything from scratch.
+* He took human form to experience life and that's how he met merideth and married her to have Pete.
+* Ayesha asks yondoo if he can capture pete for him. He goes to where rocket is with the broken spaceship along with the other revagers
+* He tells them that instead of turning the GoG in, he can take the battery and sell it for some money.
+* Other Ravagers get mad that he is always trying to look after pete and rebel agains him.
+* Nebula attacks yondoo and takes control of ravagers. Those who support Yondoo in ravagers and enslaved.
