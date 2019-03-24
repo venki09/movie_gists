@@ -141,3 +141,17 @@
 * Odin is proud of Thor.
 * The person on the throne was actually Loki and not Odin. (We don't know how that happened)
 * Post Credits - Thor comes back for Jane
+
+## Captain Marvel
+* Carol aka Viers is part of a civilization called the Krees who reside in another planet called Hala.
+* She is one of the soldiers who has been tasked with destroying the skrulls type of people who has power of shape shifting.
+* Carol was also on earth before as an Airforce pilot with this lady called lawson who was a scientist.
+* She had a mission to save human civilization by building a light speed plane which is powered by a core (Teseract)
+* Krees are bad people who partner with Runan to kill other civilizations so they could thrive.
+* They also need to get hold of the teseract so that they have all the power
+* Carol finds this out along with SHIELD agent Nicholas Joseph Fury.
+* She also finds out that she once flew on the light speed plane which came into an accident because the krees destroyed it. 
+* On that accident, lawson died and the light speed plane's core exploded and went into Carol giving her enormous powers.
+* She finds a way to unveil and control her power and destroys kree villians and secure teseract, giving it to SHIELD.
+* post credit scene: Nick holds onto a pager that he and carol share. Which he uses in infinity war before he vanishes.
+* Steve rogers, Bruce, natasha all find that pager and think what to do with it when carol shows up and asks for fury.
