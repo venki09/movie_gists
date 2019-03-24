@@ -146,7 +146,7 @@
 * Carol aka Viers is part of a civilization called the Krees who reside in another planet called Hala.
 * She is one of the soldiers who has been tasked with destroying the skrulls type of people who has power of shape shifting.
 * Carol was also on earth before as an Airforce pilot with this lady called lawson who was a scientist.
-* She had a mission to save human civilization by building a light speed plane which is powered by a core (Teseract)
+* Lawson's actual name is Mar-vell who is a kree working with the SHIELD to study the powers of tesseract and use it to build a light speed engine to travel through time and space to save civilization. 
 * Krees are bad people who partner with Runan to kill other civilizations so they could thrive.
 * They also need to get hold of the teseract so that they have all the power
 * Carol finds this out along with SHIELD agent Nicholas Joseph Fury.
