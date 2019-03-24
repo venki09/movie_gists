@@ -155,3 +155,16 @@
 * She finds a way to unveil and control her power and destroys kree villians and secure teseract, giving it to SHIELD.
 * post credit scene: Nick holds onto a pager that he and carol share. Which he uses in infinity war before he vanishes.
 * Steve rogers, Bruce, natasha all find that pager and think what to do with it when carol shows up and asks for fury.
+
+## Guardians of galaxy - Vol 1
+* Peters mom dies
+* Space ship comes and takes pete
+* Quill comes to this abandoned planet named morag and he finds a stone. Intruders come to claim it from him but he escapes from them taking the stone with him
+* Peter quill is part of ravagers lead by hondoo. They steal things for bounty. 
+* Gamora and Nebula are daughters of thanos. 
+* They’re now being loaned to Ronan who is seeking this orb which thanos needs to destroy this planet called xander. Yondoo puts a bounty on pete and rocket and groot try to catch him. Gamora tries to reclaim that orb not for runan but to betray him. They all get caught in xander prison. Prisoners of xander don’t like gamora because she’s working with runan who killed many people. They meet bautista at the prison
+* They escape the prison and goto a place called knowhere to sell the orb. It was gamoras plan. 
+* The collector explains whats inside it. It had one of the infinity stones. One of the slaves of the collector tries to take but it explodes the whole building. 
+* Meanwhile, drax calls for runan so he could kill him.  They take away the orb. Guardians go in pursuit of it and gets it back and gives it to nova corps. Runan dies. 
+* Pete finds out that he’s only half human. His dad is strange. Yandoo asks for the orb but pete gives a fake one. 
+* Post credit scene: collector is alive in the nowhere 
