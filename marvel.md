@@ -173,3 +173,7 @@
 * Merideth quill (Pete's mom) and his dad are driving around missouri and they find a stone that makes the plants grow in there.
 * People of the sovereign planet hire the guardians to protect their annular batteries from some beast. The queen, Ayesha thanks them for that.
 * In exchange of their services, they handover nebula who had once come to steal that battery and got caught.
+* While they left, rocket steals some of the batteries and try to flee. But the sovereigns finds about it and tries to catch them.
+* GoGs are saved by a strange space ship which destroys all of sovereigns' ships in one shot. 
+* GoGs crash land in a planet named behert where the strange spaceship comes as well.
+* The man's name is ego and he is pete's dad.
