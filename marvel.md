@@ -168,3 +168,8 @@
 * Meanwhile, drax calls for runan so he could kill him.  They take away the orb. Guardians go in pursuit of it and gets it back and gives it to nova corps. Runan dies. 
 * Pete finds out that he’s only half human. His dad is strange. Yandoo asks for the orb but pete gives a fake one. 
 * Post credit scene: collector is alive in the nowhere 
+
+## Guardians of galaxy - Vol-2
+* Merideth quill (Pete's mom) and his dad are driving around missouri and they find a stone that makes the plants grow in there.
+* People of the sovereign planet hire the guardians to protect their annular batteries from some beast. The queen, Ayesha thanks them for that.
+* In exchange of their services, they handover nebula who had once come to steal that battery and got caught.
