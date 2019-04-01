@@ -183,3 +183,5 @@
 * He tells them that instead of turning the GoG in, he can take the battery and sell it for some money.
 * Other Ravagers get mad that he is always trying to look after pete and rebel agains him.
 * Nebula attacks yondoo and takes control of ravagers. Those who support Yondoo in ravagers and enslaved.
+* Nebula takes a space ship and heads to Ego's planet to kill Gamora.
+* Pete is mad at Ego that he left his mom.
