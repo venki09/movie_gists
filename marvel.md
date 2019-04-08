@@ -28,6 +28,19 @@
 * Rhody takes Tony's suit and uses it to show it to the army. But he later realizes that it was going to be used by Hammer (The other weapon's dealer)
 * In the post credit scene - TOny considers joining the avengers but they deny it by saying that he still needs time.
 
+## The Avengers
+* Thanos gives a scepter with mindstone to loki and instructs him to get the tesseract for him.
+* He seeks help from the chitauri army for that
+* Loki breaks into the SHIELD and takes the tesseract away from them. In the process, he also mind controls Dr.Selvig and Barton.
+* They try to use tesseract and open the portal to space so that the chitauri army could come in and destroy earth. Loki would then would end up ruling the earth.
+* Nick Fury seeks help from TOny stark and Steve rodgers to come join the avengers initiative.
+* He also sends Natasha to go get Bruce Banner for help with gamma radiation.
+* Thor comes in search of Loki and comes to know about the Avengers initiative.
+* They all join together and close the portal.
+* Avengers also come to know that SHIELD has been using the tesseract to build weapons so that they could protect the earth from other planet's forces. (We ll know about this later in captain america winter soldier).
+* After closing the portal, Thor takes loki and tesseract to asgard.
+* Post-credit scenes: All Avengers eat Shawarma as suggested by Start :D
+
 ## Ironman3
 
 *  Tony builds an unarmed suit
