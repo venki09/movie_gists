@@ -210,5 +210,5 @@
 * They destroy the core and escape.
 * Yondu sacrifices his life and saves Pete
 * Post credits - Ravagers join again
-* Ayesha creates machine that she names Adam to fight GOG
+* Ayesha creates machine that she names Adam (Adam Warlock who is inside a cacoon) to fight GOG
 
