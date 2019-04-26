@@ -200,3 +200,13 @@
 * Pete is mad at Ego that he left his mom.
 * Ego convinces pete and shows him the power that peter can generate.
 * Mantis talks to Drax and was about to tell him something when Gamora comes in the middle of the convo.
+* Yondu and Rocket escape the prison with the help of groot and the other guy who stays with yondu. They come to Ego
+* Ego takes peter and shows him the true purpose. He apparently has planted something on every planet so that it spreads and everything becomes his.
+* But one celestial is not enough to harness the power so he needed another one. So he kept making a lot of babies and had Yondu bring them back to him. If they're not powerful enough, he would kill them. This is what Mantis told Drax
+* Nebula comes in that spaceship to kill gamora. They reunite and become allies. 
+* They find a lot of deadbodies and then they sync up with drax/mantis to know about the truth.
+* Ego tells pete that he had to kill mom by putting tumour in her head. Because he loved her so much and that was getting in his way of his expansion mission.
+* Pete gets angry and tries to fight with Ego. Ego puts him in a lock and tries to make him a battery to power his expansion 
+* They destroy the core and escape.
+* Yondu sacrifices his life and saves Pete
+
