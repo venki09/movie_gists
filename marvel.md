@@ -198,3 +198,5 @@
 * Nebula attacks yondoo and takes control of ravagers. Those who support Yondoo in ravagers and enslaved.
 * Nebula takes a space ship and heads to Ego's planet to kill Gamora.
 * Pete is mad at Ego that he left his mom.
+* Ego convinces pete and shows him the power that peter can generate.
+* Mantis talks to Drax and was about to tell him something when Gamora comes in the middle of the convo.
