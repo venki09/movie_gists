@@ -209,4 +209,6 @@
 * Pete gets angry and tries to fight with Ego. Ego puts him in a lock and tries to make him a battery to power his expansion 
 * They destroy the core and escape.
 * Yondu sacrifices his life and saves Pete
+* Post credits - Ravagers join again
+* Ayesha creates machine that she names Adam to fight GOG
 
