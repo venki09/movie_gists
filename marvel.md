@@ -212,3 +212,26 @@
 * Post credits - Ravagers join again
 * Ayesha creates machine that she names Adam (Adam Warlock who is inside a cacoon) to fight GOG
 
+## Avengers - Age of Ultron
+* Avengers go on a mission to retrieve Loki's scepter from a Hydra base in a country called Sokovia.
+* A man named Strukcer is leading a research to develop something with that scepter.
+* He also has two enhanced Pierto and maximoff to protect them
+* Avengers get the scepter.
+* Ironman wants to use his Ultron protocol on it to develop the Ultron which can protect the world. This way Avengers doesn't have to fight to save the world everytime.
+* Him and Banner work on the research. 
+* While they are at the party, the ultron wakes up and swallows Jarvis AI.
+* It also builds a suit and goes into it and then steals the scepter
+* Ultron heads to Dr.Cho who helped fix Clint Barton when he gets injured in the initial mission.
+* Cho worked on a research to rebuild muscle tissues
+* Ultron joins the enhanced and goes to a dealer of Vibranium to get vibranium.
+* Avengers go in search of Ultron. Maximoff puts mind spell and puts everyone in their worst memories/fear
+* She also sets Hulk on a rampage. Tony goes and puts him to sleep. But he wrecks havoc in sokovia already.
+* Thor had to go to his world to findout what is going on. Depending on what he saw in his dream set by maximoff. He goes into a holy river and visualizes the Mind stone that is inside the scepter.
+* Ultron uses Cho to create a body for him using Vibranium.
+* Avengers get back and fight to get the body back.
+* Ironman puts Jarvis in it and creates Vision.
+* They all stop Ultron from blowing up the world by taking Sokovia in the air.
+* Nick fury helps them by giving them the ship.
+* In the battle, Pierto dies.
+* Hulk smashes Ultron when he tried to escape. He flies off in a spaceship to save the world from his rampage.
+* Maximoff joins Avengers. Tony goes back home.
